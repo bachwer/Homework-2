@@ -17,8 +17,8 @@ Homework - scratch
 
 [Giỏi]8. Luyện tập với nhóm lệnh sound : https://scratch.mit.edu/projects/1076318754
 
-[Xuất sắc]9. Luyện tập với nhóm lệnh sound
+[Xuất sắc]9. Luyện tập với nhóm lệnh sound : https://scratch.mit.edu/projects/1076328376
 
-[Xuất sắc]10. Luyện tập với nhóm lệnh sound
+[Xuất sắc]10. Luyện tập với nhóm lệnh sound : https://scratch.mit.edu/projects/1076350551
 
 
